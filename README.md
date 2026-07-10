@@ -1,5 +1,5 @@
 ### ◈ Ludwig Eriksson
-Greetings, Little Sunshines. I am known as **Ludwig** or **Eriksson** (he/him). I play Pony Town—where I prefer the company of those who understand that presence requires no grand announcement. I am legal.
+Greetings, Little Sunshines. I am known as **Ludwig** or **Eriksson**. I play Pony Town—where I prefer the company of those who understand that presence requires no grand announcement. I am legal.
 
 ---
 
