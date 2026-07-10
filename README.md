@@ -27,8 +27,8 @@ I offer no performative warmth. What you see is the totality of what is provided
 ### ◈ The Disposition
 I am not one to squander energy on idle chatter. I remain composed and passive 24/7. My judgment is a private exercise of intellect, never a tool for exclusion. 
 
-### ◈ Kins
-I found myself in Tighnari (GI), Testament (GGST), Stardust Cookie & Longan Dragon Cookie (CRK/OB)
+> ### ◈ Kins
+> I found myself in Tighnari (GI), Testament (GGST), Stardust Cookie & Longan Dragon Cookie (CRK/OB)
 
 ### ◈ Curiosities
 
