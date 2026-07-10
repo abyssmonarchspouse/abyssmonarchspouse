@@ -3,6 +3,10 @@ Greetings, Little Sunshines. I am known as **Ludwig** or **Eriksson**. I play Po
 
 ---
 
+<img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/41d0b657-ad0f-48ba-8c6f-57130fd7f5f9" />
+
+---
+
 ### ◈ Encounters & Etiquette
 I am a fixture of the map, though I avoid the fringes where chaos loses its shape. Should you wish to cross paths, consider these parameters:
 
@@ -29,3 +33,7 @@ I found myself in Tighnari (GI), Testament (GGST), Stardust Cookie & Longan Drag
 ---
 
 *"To observe is to judge; to speak is merely to confirm the inevitable."*
+
+<img width="640" height="418" alt="image" src="https://github.com/user-attachments/assets/ef741a81-ef7b-411c-9423-e21d0dabddea" />
+
+
