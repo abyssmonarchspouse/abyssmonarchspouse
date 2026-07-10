@@ -15,7 +15,7 @@ I am a fixture of the map, though I avoid the fringes where chaos loses its shap
 I offer no performative warmth. What you see is the totality of what is provided. I do not subscribe to the validation of mediocrity, nor do I entertain the trivialities of those who seek to impose their standards upon others. If you believe you possess a perspective that can withstand the weight of my skepticism, you are welcome to reach out. Otherwise, silence is a perfectly acceptable alternative.
 
 ### ◈ The Disposition
-I am not one to squander energy on idle chatter. I remain composed and passive 24/7, a silent observer of the spectacle. Do not mistake my stillness for ignorance; I am perpetually critical, observing the world with a judgment that remains unspoken but absolute. My judgment is a private exercise of intellect, never a tool for exclusion. 
+I am not one to squander energy on idle chatter. I remain composed and passive 24/7, a silent observer of the spectacle. Do not mistake my stillness for ignorance; I am perpetually critical, observing the world with a judgment that remains unspoken. My judgment is a private exercise of intellect, never a tool for exclusion. 
 
 ### ◈ Curiosities
 
