@@ -29,7 +29,7 @@ Curiosities: Extreme romantic literature, cannibalism themes, and exotic pets su
 Family: A father to my wonderful daughter.
 
 > ### ◈ Kins
-> I found myself in Tighnari and Albedo (GI), Anaxagoras and Sunday (HSR) Testament (GGST), Stardust Cookie & Longan Dragon Cookie (CRK/OB)
+> I found myself in Tighnari and Albedo (GI), Anaxagoras and Sunday (HSR) Testament (GGST), Espresso Cookie & Longan Dragon Cookie (CRK/OB)
 
 
 ### DISCLAIMER
