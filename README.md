@@ -18,7 +18,7 @@ I treat Pony Town as a background. Mostly passive, but never closed off—if our
 
 - Feel free to approach at any time. Cuddles/hide (c+h), and digital intimacy are welcome. Go ahead.
 
-- Stance: I support the queer and alt community wholeheartedly, traditional or modern satanic are also welcomed. I prefer to listen rather than judge or speak.
+- Stance: I support the queer and alt community wholeheartedly, traditional or modern satanic are also welcome. I prefer to listen rather than judge or speak.
 
 
 ### Interests
